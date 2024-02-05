@@ -14,3 +14,11 @@ i litterya only hangout with 4 other ppl...and im very high matainace.... i thin
   <p align="center">
 C + H always welcomed !! im always trying to be in a ponytown tiktok video i'll be so happy
  </p>
+ 
+ ***
+ 
+ my stamps :33 be free to use them 
+ 
+ ![hai](https://media.discordapp.net/attachments/1082601715334918196/1204012136981069875/ezgif.com-crop.gif?ex=65d32eae&is=65c0b9ae&hm=9786704f4ec1a74eb0c4f473dad52e439e01740e703954955940ef9480951f41&=&width=126&height=71) ![hai](https://media.discordapp.net/attachments/1082601715334918196/1204014496645910538/ezgif.com-crop_1.gif?ex=65d330e1&is=65c0bbe1&hm=e22c1f405632c6522bdf5fa627d51f536e58edae9bcda50ce30f47eb9459fffa&=&width=126&height=71)
+
+
