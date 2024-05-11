@@ -3,7 +3,7 @@
 </p>  
 
 <p align="center">
-hai ^_^ im mae im c+h friendly!! but please inform me b4 hand 
+hai ^_^ im mae or leo im c+h friendly!! but please inform me b4 hand 
 also im 3teen dont be weird thank yew
 </p>  
 
